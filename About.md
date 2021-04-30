@@ -9,3 +9,5 @@ and hopes to add chickens and a couple of goats at some point.
 
 Over the past few years, Claire has worked in volunteer positions, taught classes in the community, and owned a local business.
 She strives to be detail-oriented and hard-working in everything she does.
+
+To contact, please email clpnf@mail.missouri.edu
