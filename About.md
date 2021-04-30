@@ -11,3 +11,5 @@ Over the past few years, Claire has worked in volunteer positions, taught classe
 She strives to be detail-oriented and hard-working in everything she does.
 
 To contact, please email clpnf@mail.missouri.edu
+
+![image](https://github.com/cmld18/INFOTC1000Project/blob/ed7f7be16779218a264a74c4422072c0fd5396a9/A3B1CE4F-8AA2-4BB5-8649-6A6A06CF0A04.jpeg)
