@@ -10,3 +10,4 @@
 #### ***Sample Projects***
 ##### To view some of my completed projects, please see this page.
 
+#### For more information including contact, please see [this page](https://github.com/cmld18/INFOTC1000Project/blob/c90469634f26675810da778a71eab0ff7f3d7b9d/About.md).
