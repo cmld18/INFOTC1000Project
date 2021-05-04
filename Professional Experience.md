@@ -1,6 +1,6 @@
 # Professional Experience
 
-* Realtor, [Baker Team Realty](https://bakerteamrealty.com/) 2019 to Present
+* *Realtor* [Baker Team Realty](https://bakerteamrealty.com/) 2019 to Present
   * Assessed client needs, requirements, and budgets
   * Arranged for title searches of properties
   * Reviewed property listings
@@ -11,7 +11,7 @@
   * Uphled accuracy in listings and appraisals
  
   
-* Owner/Baker of Columbia Confectionery 2017 to 2020
+* *Owner/Baker* Columbia Confectionery 2017 to 2020
   * Created customized orders
   * Developed new products
   * Resolved customer concerns with positive approach and constructive strategies
@@ -19,7 +19,7 @@
   * Complied with all health and safety codes
   * Led baking and decorating demonstrations and classes for the Columbia Area Career Center
     
-* Assistant Manager Natasha's Euro Market 2007 to 2010
+* *Assistant Manager* Natasha's Euro Market 2007 to 2010
   * Evaluated suppliers by assessing quality, timelines, and deliveries
   * Identified and qualified customer needs
   * Negotiated and closed profitable projects with high success rate
